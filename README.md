@@ -3,7 +3,7 @@
 **Eclectic Software Engineer, Bootcamp grad from [BrainStation](https://brainstation.io/) and Self-taught programmer and musician.**
 
 
-💼 &nbsp;I’m currently looking for full-time employment opportunities and at the same time taking freelance jobs, and building my own websites.
+💼 &nbsp;I’m currently looking for full-time employment opportunities, at the same time taking freelance jobs, and building my own websites.
 
 🪖 &nbsp;With avid experience in the Military and Private Security world, I've decided to take the leap and charge into my Tech career.
 
